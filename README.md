@@ -1,15 +1,24 @@
 
-## 　　　　 　　꒰  hewoo ! 　੭       ֹ  
+<p align="center">    ꒰  hewoo ! 　੭  ֹ</p>
   
-  　　 ⊹  ︶︶ 　 ︶︶ 　 ︶︶　୨୧　 ︶︶　 ︶︶ 　 ︶︶ ⊹
+  <p align="center"> ⊹  ︶︶ 　 ︶︶ 　 ︶︶　୨୧　 ︶︶　 ︶︶ 　 ︶︶ ⊹ </p>
+ 
+<div align="center">
+  <img src="https://i.pinimg.com/originals/cc/5f/1e/cc5f1e0635f5e68141204edf3c4db05f.gif" width="450">
+</div>
+　　　　　<p align="center">
+𝘴𝘦𝘳𝘦𝘯𝘪𝘵𝘺 𝘪𝘴 𝘧𝘰𝘶𝘯𝘥 𝘪𝘯 𝘢𝘬𝘶𝘵𝘢𝘨𝘢𝘸𝘢 . . . ₍^. .^₎⟆
+</p>    
+<p align="center">
+( :3 ) —— . pony town account . you can interact!
+</p>
 
- ![](https://media1.giphy.com/media/v1.Y2lkPTc5MGI3NjExeWlhYmNrYzdzNGl2NWVlOGhreW4zMGxyYmRjeWw1bTRjdXBpZG1odiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/geFKcgtZOk3Hwctt5N/giphy.gif)
-
- 　　 　　 𝘴𝘦𝘳𝘦𝘯𝘪𝘵𝘺 𝘪𝘴 𝘧𝘰𝘶𝘯𝘥 𝘪𝘯 𝘢𝘬𝘶𝘵𝘢𝘨𝘢𝘸𝘢 . . . ₍^. .^₎⟆    
-
-    ( :3 )  ——    .  pony town account  . you can interact! 
- 　　　　　 [╰┈➤ info](#info) ・ [ favorites and fandoms](#favorites) ・
-      ・   ᠃  ᠌ ᠌  𓍢  ִ🌱
+<p align="center">
+<a href="#info">╰┈➤ info</a> ・
+<a href="#favorites-and-fandoms">favorites and fandoms</a>
+</p> 
+ 　　　　　 
+     <p align="center">・   ᠃  ᠌ ᠌  𓍢  ִ🌱 </p>
     
 ## Info ! 　 /ᐠ • ˕ •マ 
 ♡ I don't speak English!! I speak Spanish!!
